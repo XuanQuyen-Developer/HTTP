@@ -1,2 +1,0 @@
-# Hacker
-Con cặc
